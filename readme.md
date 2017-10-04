@@ -9,4 +9,4 @@
 - Perumbavoor
 - London
 
-I have applied for a new job in E&Y. Resume is forwarded to the HR manager
+Infosys is a great company
